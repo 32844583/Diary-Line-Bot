@@ -1,1 +1,9 @@
-
+![心情日記 -01](https://github.com/32844583/Diary-Line-Bot/assets/66071134/cef9eefa-9e41-4112-8b07-beb0ca94183d)
+![心情日記 -04](https://github.com/32844583/Diary-Line-Bot/assets/66071134/b73ae7a7-7cbc-4d0d-b7ed-ba7f1724779f)
+![心情日記 -05](https://github.com/32844583/Diary-Line-Bot/assets/66071134/5d508a0d-7afe-459a-b730-dcee213158d2)
+![心情日記 -08](https://github.com/32844583/Diary-Line-Bot/assets/66071134/e8585691-f628-4993-be26-c86b16c6f673)
+![圖片1](https://github.com/32844583/Diary-Line-Bot/assets/66071134/5d5b42ba-2b98-4420-8919-6e9413971327)
+![心情日記 -13](https://github.com/32844583/Diary-Line-Bot/assets/66071134/0772da7f-4c75-40b5-b845-3d580a9d6f1a)
+![心情日記 -14](https://github.com/32844583/Diary-Line-Bot/assets/66071134/ca9c4ca1-f1b9-4ee1-ae79-f117b90152e3)
+![心情日記 -07](https://github.com/32844583/Diary-Line-Bot/assets/66071134/615a8f70-39b6-438b-9a6c-23acd7a5bf0e)
+![心情日記 -09](https://github.com/32844583/Diary-Line-Bot/assets/66071134/805b3dff-f482-430c-ad39-9ad84b0d5e53)
